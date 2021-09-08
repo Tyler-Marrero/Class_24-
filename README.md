@@ -1,2 +1,2 @@
 # Class_24-
-did in ckass with teacher ! :D
+did in class with teacher ! :D
